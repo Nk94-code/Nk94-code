@@ -2,7 +2,7 @@
 - 👀 I’m interested in GAMES n techno
 - 🌱 I’m currently learning Ai/peace of mind
 - 💞️ I’m looking to collaborate on Ai masterminds
-- 📫 How to reach me instagram narmunithi
+- 📫 How to reach me on  instagram : narmunithi
 - 😄 Pronouns:NK
 - 
 - ⚡ Fun fact:1ST INTROVERT AFTER KNOW I CAN NE ANNOYING AS HELL🔥😎
